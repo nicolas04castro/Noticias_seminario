@@ -31,3 +31,11 @@ Esta nueva historia contará con nuevos villanos dentro del escuadrón, como ‘
 
 Ahora, estará en manos de los fanáticos de los superhéroes quienes dictarán si esta película les hace honor a los cómics originales y si es el verdadero arranque de una saga de otras películas y series como sucede con los personajes de la franquicia rival, Marvel.
 
+##  deportes
+### Vettel descalificado, cambia el podio en Hungría
+La sanción a Vettel, segundo inicialmente en la carrera que ganó el francés Esteban Ocon, compañero del otro español, Fernando Alonso, en Alpine implica también que el doble campeón mundial asturiano, que había sido quinto, se clasificase definitivamente en la cuarta posición.
+
+Y que el séptuple campeón mundial inglés Lewis Hamilton (Mercedes), que le había arrebatado el liderato al holandés Max Verstappen (Red Bull), comande la general del certamen con ocho puntos de ventaja en lugar de seis (195 frente a 187).
+
+El tercer puesto de Sainz supone el cuarto podio desde que compite en la categoría reina del talentoso piloto madrileño, que pasa a ser sexto en el Mundial, con 83 puntos, tres más que su compañero de equipo, el monegasco Charles Leclerc (Ferrari), que ahora es séptimo.
+
