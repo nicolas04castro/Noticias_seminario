@@ -39,3 +39,16 @@ Y que el séptuple campeón mundial inglés Lewis Hamilton (Mercedes), que le ha
 
 El tercer puesto de Sainz supone el cuarto podio desde que compite en la categoría reina del talentoso piloto madrileño, que pasa a ser sexto en el Mundial, con 83 puntos, tres más que su compañero de equipo, el monegasco Charles Leclerc (Ferrari), que ahora es séptimo.
 
+## Cultural(Arte)
+### El robo que lanzó a la fama a la Mona Lisa
+El hombre que se la robó, Vincenzo Peruggia, no es el tipo de criminal ingenioso que aparece en tantas películas de Hollywood.
+
+Logró entrar al Museo del Louvre y salir con la pintura de Leonardo da Vinci con el mínimo de preparación. Pero su robo causó sensación y creó un ícono.
+
+Ocurrió un lunes, el 21 de agosto de 1911, un día en el que el museo estaba cerrado.
+
+No fue sino hasta el martes que notaron el hurto. La policía empezó la investigación y el centro permaneció cerrado durante una semana en medio del escándalo.
+
+"La Joconde" -como le llaman los franceses a la Mona Lisa- estuvo desaparecida por más de dos años. Fue recuperada el 10 de diciembre de 1913, cuando Peruggia fue atrapado luego de que le entregara la pintura a Alfredo Geri, un anticuario de Florencia.
+
+"Era el robo de propiedad más famoso en tiempos de paz", señala Noah Charmey, autor de 'Los robos de la Mona Lisa'.
